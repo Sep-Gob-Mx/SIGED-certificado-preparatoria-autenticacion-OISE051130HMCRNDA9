@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-OISE051130HMCRNDA9
+OISE051130HMCRNDA9
